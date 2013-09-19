@@ -3,6 +3,6 @@ Stoooges
 
 You know it.
 
-Something webpage draft. For private use only.
+Some drafts of webpages. For private use only.
 
 Ares
